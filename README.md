@@ -7,4 +7,4 @@ My name is Golpari Abari.
 - 💬 Ask me about plants, game dev, and art.
 - 📫 How to reach me: golpari@umich.edu
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I grow peppers.
+- ⚡ Fun fact: My favorite art medium is clay!
